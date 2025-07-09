@@ -10,4 +10,4 @@
 
 平台提供了各种高清福利视频，专为用户带来最佳的观看体验。影片包含详细的分类，用户可以轻松找到自己感兴趣的内容，确保流畅的播放体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay15 ）</span>
